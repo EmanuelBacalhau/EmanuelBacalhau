@@ -1,4 +1,4 @@
 - Olá, eu sou Emanuel Bacalhau!
 - 👀 Atualmente estou cursando Sistemas de Informações
 - 📫 Endereço de contato: carlosemanuelbatistabacalhau@gmail.com
-- :speech_balloon: Número de contato: (83) 993239001
+- :telephone: (83) 993239001
